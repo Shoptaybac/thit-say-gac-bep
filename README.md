@@ -1,5 +1,5 @@
 # thit-say-gac-bep
-Thịt sây gác bếp thơm ngon chuẩn vị Tây Bắc. Thịt trâu gác bếp, thịt lợn gác bếp, lạp xưởng gác bếp....
+Thịt sấy gác bếp thơm ngon chuẩn vị Tây Bắc. Thịt trâu gác bếp, thịt lợn gác bếp, lạp xưởng gác bếp....
 # Đặc sản Tây Bắc - Thực phẩm sạch từ núi rừng Việt Nam
 
 Chào mừng bạn đến với Shoptaybac.com – nơi chuyên cung cấp các loại thực phẩm đặc sản Tây Bắc **nguyên chất**, **sạch**, và **được tuyển chọn kỹ lưỡng từ bản làng**.

@@ -11,7 +11,7 @@ Chào mừng bạn đến với Shoptaybac.com – nơi chuyên cung cấp các 
 - [Thịt lợn gác bếp](https://shoptaybac.com/san-pham/thit-lon-gac-bep-tay-bac-chuan-vi-500g/) – Lợn bản nhỏ, bì dày, thịt thơm
 - [Lạp xưởng gác bếp](https://shoptaybac.com/san-pham/lap-xuong-gac-bep-tay-bac-chuan-vi-500g/) – Món nhắm đặc sản trứ danh
 - [Thịt sây gác bếp](https://shoptaybac.com/danh-muc-san-pham/thit-say-gac-bep/) – Danh mục thịt gác bếp tại SHop Tây BẮc
-
+![Thịt sấy gác bếp](Thịt trâu gác bếp Shop Tây Bắc.jpg)
 ## 📦 Đặc sản đóng hộp – Giao hàng toàn quốc
 
 Tất cả sản phẩm đều có thể đặt hàng tại:  
